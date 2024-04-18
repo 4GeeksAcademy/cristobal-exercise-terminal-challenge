@@ -1,4 +1,8 @@
-Where do you put Vegeta after you kill him? In the Frieza. 
+
+
+
+
+
 
 What did Beerus say to Goku? Why don't you tell your son to "Gohan" home. 
 
@@ -26,4 +30,73 @@ I cut off a monkeys tail and now he's just a vegeta-ble.
 
 Hey, Vegeta I heard you have a hole in your Trunks. -Cell 
 
-source: http://www.jokes4us.com/peoplejokes/dragonballzjokes.html
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+zzzzzzzZZZZZZ
+C
+C
+C
+C
+C
+C
+C
+C
+o: http://www.jokes4us.com/peoplejokes/dragonballzjokes.html
